@@ -6,7 +6,7 @@ zmena
 
 Malinky mam rada
 
-Skoda ze uz v zahrade nemame, uz nie su.  :-( Pockame na dalsi rok
+Skoda ze uz v zahrade nemame, uz nie su. ...budu este jablka
 
 
 
