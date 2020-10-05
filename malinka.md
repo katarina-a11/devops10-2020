@@ -10,3 +10,4 @@ Skoda ze uz v zahrade nemame, uz nie su.  :-( Pockame na dalsi rok
 
 
 
+
