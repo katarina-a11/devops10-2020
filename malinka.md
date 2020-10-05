@@ -6,5 +6,7 @@ zmena
 
 Malinky mam rada
 
+Skoda ze uz v zahrade nemame
+
 
 
