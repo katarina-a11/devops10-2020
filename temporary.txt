@@ -1,1 +1,2 @@
 pokus ignore
+pokus ignore * gitignore
